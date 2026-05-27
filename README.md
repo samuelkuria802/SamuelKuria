@@ -60,9 +60,9 @@ I am committed to absolute data integrity and professional discretion. All metho
 
 ## 📬 Professional Contact
 
-* **LinkedIn:** [Your LinkedIn Profile URL]
-* **Email:** [Your Professional Email]
-* **Portfolio Site:** [Optional: Your Portfolio URL]
+* **LinkedIn:** [www.linkedin.com/in/samuel-mwibiri-kuria]
+* **Email:** [auditwithkuria@gmail.com]
+* **Portfolio Site:** [https://69c2a0cba4971.site123.me/]
 
 <br>
 
